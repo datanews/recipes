@@ -89,4 +89,4 @@ Hearty, not overly sweet.  Use more apple than the recipe calls for (at least 1.
 * Grated rind of 1 lemon
 * 4 tbsp sweet red wine (kosher Manischewitz wine or similar)
 
-Make at least a day ahead of time and chill in the fridge.  Great with matzoh or other crackers.
+Mix all ingredients together and cover and chill in the fridge for at least a day. Great with matzoh or other crackers. Keeps for at least a week.
