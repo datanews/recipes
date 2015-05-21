@@ -90,3 +90,9 @@ Hearty, not overly sweet.  Use more apple than the recipe calls for (at least 1.
 * 4 tbsp sweet red wine (kosher Manischewitz wine or similar)
 
 Mix all ingredients together and cover and chill in the fridge for at least a day. Great with matzoh or other crackers. Keeps for at least a week.
+
+### Chocolate Chip Buttered Popcorn Cookies
+
+http://joythebaker.com/2013/04/buttered-popcorn-chocolate-chip-cookies/
+
+Adapted from the Smitten Kitchen Cookbook. My (Kat's) mods were to use 1/3 cup popcorn, not 1/4; to use salted butter on the popcorn; and, as suggested, to sprinkle sea salt on them, but I used Maldon, the flaky kind. 
