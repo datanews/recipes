@@ -80,7 +80,7 @@ Hearty, not overly sweet.  Use more apple than the recipe calls for (at least 1.
 
 ### Charoset
 
-** Ingredients **
+**Ingredients**
 
 * 3 peeled apples, coarsely chopped
 * 1/3 cup finely chopped walnuts
