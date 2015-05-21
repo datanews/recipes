@@ -96,3 +96,9 @@ Mix all ingredients together and cover and chill in the fridge for at least a da
 http://joythebaker.com/2013/04/buttered-popcorn-chocolate-chip-cookies/
 
 Adapted from the Smitten Kitchen Cookbook. My (Kat's) mods were to use 1/3 cup popcorn, not 1/4; to use salted butter on the popcorn; and, as suggested, to sprinkle sea salt on them, but I used Maldon, the flaky kind. 
+
+### Sweet Chili Sauce
+
+http://picturetherecipe.com/index.php/recipes/sweet-and-spicy-chili-sauce-thai-style/
+
+A really easy sweet, chili sauce recipe.  Made many times by Alan and easy to mix in some rhubarb for more tangy flavor.
