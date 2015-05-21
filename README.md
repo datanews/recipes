@@ -52,7 +52,7 @@ Noah's favorite. Also makes a great breakfast the next day. To make this kosher 
 
 http://www.ambitiouskitchen.com/2012/02/brown-butter-sea-salt-chocolate-chip-cookies/
 
-Keep the dough balls very round.  Underbake these and let them finish outside the oven.
+Keep the dough balls very round.  Underbake these and let them finish outside the oven.  In Noah's experience they're great fresh but don't keep that well. He's probably doing something wrong.
 
 ### Very Rich Brownies
 
