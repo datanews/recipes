@@ -126,3 +126,9 @@ Super popular at ONA Atlanta 2013. — Emily Chow
 http://everybodylikessandwiches.com/2011/03/cranberry-lemon-squares/
 
 I'm sure they're just as good with cranberries, as the original recipe calls for, but I love substituting the cranberries for blueberries because I find cranberries too tart in a baked good. — Emily Chow
+
+### Bien Cuit's Buckwheat Chocolate Cookies (aka the "Insane Flourless" ones)
+
+http://www.bonappetit.com/recipe/bien-cuits-salted-chocolate-buckwheat-cookies
+
+I rolled them into two logs of dough, each 1" wide, rather than the single 2" log they recommend. Partly because these cookies are intense and one inch seemed like plenty, and partly because I didn't want to do all that work and only get 10 cookies. - Kat
