@@ -102,3 +102,27 @@ Adapted from the Smitten Kitchen Cookbook. My (Kat's) mods were to use 1/3 cup p
 http://picturetherecipe.com/index.php/recipes/sweet-and-spicy-chili-sauce-thai-style/
 
 A really easy sweet, chili sauce recipe.  Made many times by Alan and easy to mix in some rhubarb for more tangy flavor.
+
+### Earl grey chocolate chip cookies 
+
+http://www.designlovefest.com/2015/03/earl-grey-chocolate-chip-cookies/
+
+I (Emily Chow) recommend steeping the 1 tsp of tea in more milk than you need just so you don't end up with too-dry dough. Also, flatten the dough balls a bit before putting them in the oven. They don't end up as flat as the photos show.
+
+### Dark chocolate, pistachio and smoked sea salt cookies
+
+http://joythebaker.com/2012/08/dark-chocolate-pistachio-smoked-sea-salt-cookies/
+
+The perfect amount of salty and sweet. — Emily Chow
+
+### Sunset's chocolate peanut butter thumbprint cookies 
+
+http://www.myrecipes.com/recipe/chocolate-peanut-butter-thumbprint-cookies
+
+Super popular at ONA Atlanta 2013. — Emily Chow
+
+### Blueberry lemon squares
+
+http://everybodylikessandwiches.com/2011/03/cranberry-lemon-squares/
+
+I'm sure they're just as good with cranberries, as the original recipe calls for, but I love substituting the cranberries for blueberries because I find cranberries too tart in a baked good. — Emily Chow
