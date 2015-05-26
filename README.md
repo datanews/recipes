@@ -1,6 +1,6 @@
 # Recipes
 
-Recipes from Data News staff members (the food kind, not the code kind).
+Recipes (food, not code) from Data News staff members and friends.
 
 ### Chocolate-Covered Caramel Matzoh
 
