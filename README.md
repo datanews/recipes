@@ -127,6 +127,12 @@ http://everybodylikessandwiches.com/2011/03/cranberry-lemon-squares/
 
 I'm sure they're just as good with cranberries, as the original recipe calls for, but I love substituting the cranberries for blueberries because I find cranberries too tart in a baked good. — Emily Chow
 
+### Coconut cream muffins
+
+http://www.food.com/recipe/coconut-cream-muffins-97880
+
+Pretty dense, mildly sweet, right on the border of a muffin and a cupcake.
+
 ### Bien Cuit's Buckwheat Chocolate Cookies (aka the "Insane Flourless" ones)
 
 http://www.bonappetit.com/recipe/bien-cuits-salted-chocolate-buckwheat-cookies
