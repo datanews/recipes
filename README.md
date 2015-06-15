@@ -138,3 +138,25 @@ Pretty dense, mildly sweet, right on the border of a muffin and a cupcake.
 http://www.bonappetit.com/recipe/bien-cuits-salted-chocolate-buckwheat-cookies
 
 I rolled them into two logs of dough, each 1" wide, rather than the single 2" log they recommend. Partly because these cookies are intense and one inch seemed like plenty, and partly because I didn't want to do all that work and only get 10 cookies. - Kat
+
+### Strawberry Nectarine Bars
+
+http://smittenkitchen.com/blog/2014/05/strawberry-rhubarb-crisp-bars/
+
+Mods: Used 3 cups of fruit, not two. Used strawberries and nectarines, not rhubarb. Added lemon zest. 
+
+### Cheese Date Biscuits
+
+1 stick unsalted butter, softened
+1 cup sharp cheddar cheese
+1 1/2 cup all purpose flour
+1/8 tsp cayenne pepper
+1/2 tsp salt
+1/4 cup milk
+1 8 oz package pitted dates (although you might not use them all)
+
+Preheat oven to 375 F
+
+Beat butter and cheese until well-blended. Mix in flour, salt and pepper. Add milk. Stir until soft dough forms. Wrap about 1 Tbsp dough around about 1 - 1.5 Tbsp chopped dates. Cover the dates completely with the dough and shape into a ball, then pat it down a little so it's a little flat on top. 
+
+Place on ungreased baking sheet. Bake until golden, about 15 minutes (or up to 30, depending on your oven). 
