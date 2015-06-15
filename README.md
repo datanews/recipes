@@ -143,7 +143,7 @@ I rolled them into two logs of dough, each 1" wide, rather than the single 2" lo
 
 http://smittenkitchen.com/blog/2014/05/strawberry-rhubarb-crisp-bars/
 
-Mods: Used 3 cups of fruit, not two. Used strawberries and nectarines, not rhubarb. Added lemon zest. 
+Mods: Used 3 cups of fruit, not two. Used strawberries and nectarines, not rhubarb. Added lemon zest. - Kat
 
 ### Cheese Date Biscuits
 
@@ -159,4 +159,4 @@ Preheat oven to 375 F
 
 Beat butter and cheese until well-blended. Mix in flour, salt and pepper. Add milk. Stir until soft dough forms. Wrap about 1 Tbsp dough around about 1 - 1.5 Tbsp chopped dates. Cover the dates completely with the dough and shape into a ball, then pat it down a little so it's a little flat on top. 
 
-Place on ungreased baking sheet. Bake until golden, about 15 minutes (or up to 30, depending on your oven). 
+Place on ungreased baking sheet. Bake until golden, about 15 minutes (or up to 30, depending on your oven). - Kat
